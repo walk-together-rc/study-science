@@ -1,1 +1,1 @@
-# study--science
+# study-science
